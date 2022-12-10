@@ -22,14 +22,17 @@ I will present seven of my projects, which were born from contemplation, visions
 
 
 
+
 APPLICATION FORM AND SHORT REFLECTION FOR PHD CONFERENCE: 
 
 [Arthus DR conference - SROPAC - eng.pdf](https://github.com/sasaropac/AArthus-conference-2023/files/10201015/Arthus.DR.conference.-.SROPAC.-.eng.pdf)
 
 
 
+
 CV /  ENG / [Saša Ropač - cv.pdf](https://github.com/sasaropac/AArthus-conference-2023/files/10200957/Sasa.Ropac.-.cv.pdf)
  / SROPAC
+ 
  
  
 
