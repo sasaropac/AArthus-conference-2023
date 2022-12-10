@@ -7,6 +7,7 @@
 ![20221129_145132](https://user-images.githubusercontent.com/120111273/206867004-92d43c50-192f-448c-96b8-6ccec35cdc76.jpg)
 # AArthus - Doctoral conference CA2RE: 23 - 25 March 2023 
 
+Title and abstract:
 
 LANDSCAPE ARCHETYPES IN ARCHITECTURAL DESIGN
 
