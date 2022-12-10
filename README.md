@@ -37,12 +37,16 @@ sasa.ropac@gmail.com
 
 CV /  ENG / [Saša Ropač - cv.pdf](https://github.com/sasaropac/AArthus-conference-2023/files/10200957/Sasa.Ropac.-.cv.pdf)
  / SROPAC
-
-![SmartSelect_20221210-203007_Gallery](https://user-images.githubusercontent.com/120111273/206875458-cbbafc11-e9de-45e7-95da-02228b3a4d8b.jpg)
-
-APPLICATION FORM AND SHORT REFLECTION FOR PHD CONFERENCE: 
+ 
+ 
+ APPLICATION FORM AND SHORT REFLECTION FOR PHD CONFERENCE: 
 
 [Arthus DR conference - SROPAC - eng.pdf](https://github.com/sasaropac/AArthus-conference-2023/files/10201015/Arthus.DR.conference.-.SROPAC.-.eng.pdf)
+
+ 
+
+[SmartSelect_20221210-203007_Gallery](https://user-images.githubusercontent.com/120111273/206875458-cbbafc11-e9de-45e7-95da-02228b3a4d8b.jpg)
+
 
 
 
