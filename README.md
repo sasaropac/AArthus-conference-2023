@@ -20,6 +20,11 @@ primeval nature, primeval symbols, sound, arhetypes, prototypes
 I will present seven of my projects, which were born from contemplation, visions, dreams, research, concepts. I emphasize thinking about the archetypes that guided me through the projects, like a compass. The projects are connected to each other in a common story. The guiding principle of thinking came to the fore through subtle perceptions of landscapes and people, which are subjective perceptions and at the same time completely unique. The story that I created in the projects leans on shapes and sounds. I lean on the philosophy of hermetic writings, Pythagorean teachings and Upanishads. Of course, my personal vision / philosophy was created through the process, which is interwoven through seven projects - in a multimedia and multidimensional form. The cosmos and primeval nature are the perfect inspiration for the knowledge that arises in thinking. Among different basic shapes, the spiral stands out. It is the starting point of my designs. The symbols that originate from the primordial nature are the basic junctions for the design that follows the universal harmony, and at the same time offers a wide spectrum for the scientific development and progress of the civilization. Symbols are not just two - dimensional images or drawings, they are also statues, lights, musical instruments, sparkling water, a vessel with levitation, a film, a performance, which I will present through the development stages from sketch to prototypes and production. Ancient symbols become the starting point for modern design and science. Such design affects the broadening of consciousness, the connection with nature, and returns man to contemplation, to his primal image of Anime, which takes over us as humanity and the planet.
 
 
+APPLICATION FORM AND SHORT REFLECTION FOR PHD CONFERENCE: 
+
+[Arthus DR conference - SROPAC - eng.pdf](https://github.com/sasaropac/AArthus-conference-2023/files/10201015/Arthus.DR.conference.-.SROPAC.-.eng.pdf)
+
+![SmartSelect_20221210-203007_Gallery](https://user-images.githubusercontent.com/120111273/206876662-8abf3f52-0dde-466e-a59c-f7c796959242.jpg)
 
 
 M.Sc. Sasa Ropac, udika
@@ -39,13 +44,8 @@ CV /  ENG / [Saša Ropač - cv.pdf](https://github.com/sasaropac/AArthus-confere
  / SROPAC
  
  
- APPLICATION FORM AND SHORT REFLECTION FOR PHD CONFERENCE: 
-
-[Arthus DR conference - SROPAC - eng.pdf](https://github.com/sasaropac/AArthus-conference-2023/files/10201015/Arthus.DR.conference.-.SROPAC.-.eng.pdf)
-
  
-
-[SmartSelect_20221210-203007_Gallery](https://user-images.githubusercontent.com/120111273/206875458-cbbafc11-e9de-45e7-95da-02228b3a4d8b.jpg)
+ 
 
 
 
