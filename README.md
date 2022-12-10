@@ -24,7 +24,7 @@ I will present seven of my projects, which were born from contemplation, visions
 
 M.Sc. Sasa Ropac, udika
 
-Presernova 17
+Presernova ul. 17
 
 4240 Radovljica
 
