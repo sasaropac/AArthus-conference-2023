@@ -25,6 +25,9 @@ APPLICATION FORM AND SHORT REFLECTION FOR PHD CONFERENCE:
 [Arthus DR conference - SROPAC - eng.pdf](https://github.com/sasaropac/AArthus-conference-2023/files/10201015/Arthus.DR.conference.-.SROPAC.-.eng.pdf)
 
 
+CV /  ENG / [Saša Ropač - cv.pdf](https://github.com/sasaropac/AArthus-conference-2023/files/10200957/Sasa.Ropac.-.cv.pdf)
+ / SROPAC
+ 
 
 M.Sc. Sasa Ropac, udika
 
@@ -39,8 +42,7 @@ tel.:00 386 40 213 223
 sasa.ropac@gmail.com
 
 
-CV /  ENG / [Saša Ropač - cv.pdf](https://github.com/sasaropac/AArthus-conference-2023/files/10200957/Sasa.Ropac.-.cv.pdf)
- / SROPAC
+
  
  
  ![SmartSelect_20221210-203007_Gallery](https://user-images.githubusercontent.com/120111273/206876712-7f708b39-db81-4b59-9fa3-2c09a56d2986.jpg)
