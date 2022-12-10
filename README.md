@@ -1,4 +1,4 @@
-# AArhus- doctoral conference CA2RE: 23 - 25 March 2023 
+# AArhus - doctoral conference CA2RE: 23 - 25 March 2023 
 
 researches in design {archetypes}
 
