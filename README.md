@@ -24,7 +24,6 @@ APPLICATION FORM AND SHORT REFLECTION FOR PHD CONFERENCE:
 
 [Arthus DR conference - SROPAC - eng.pdf](https://github.com/sasaropac/AArthus-conference-2023/files/10201015/Arthus.DR.conference.-.SROPAC.-.eng.pdf)
 
-![SmartSelect_20221210-203007_Gallery](https://user-images.githubusercontent.com/120111273/206876662-8abf3f52-0dde-466e-a59c-f7c796959242.jpg)
 
 
 M.Sc. Sasa Ropac, udika
@@ -44,7 +43,8 @@ CV /  ENG / [Saša Ropač - cv.pdf](https://github.com/sasaropac/AArthus-confere
  / SROPAC
  
  
- 
+ ![SmartSelect_20221210-203007_Gallery](https://user-images.githubusercontent.com/120111273/206876712-7f708b39-db81-4b59-9fa3-2c09a56d2986.jpg)
+
  
 
 
