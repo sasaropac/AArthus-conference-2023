@@ -1,2 +1,2 @@
-# AArthus-conference-2023
+# AArthus- doctoral conference-2023
 researches in design {archetypes}
