@@ -21,7 +21,7 @@ I will present seven of my projects, which were born from contemplation, visions
 
 
 
-M.Sc.Sasa Ropac, udika
+M.Sc. Sasa Ropac, udika
 
 Presernova 17
 
@@ -33,3 +33,4 @@ tel.:00 386 40 213 223
 
 sasa.ropac@gmail.com
 
+![SmartSelect_20221210-203007_Gallery](https://user-images.githubusercontent.com/120111273/206872291-ebef2f8a-5ab4-4e89-9db5-144996a801b1.jpg)
