@@ -35,7 +35,7 @@ tel.:00 386 40 213 223
 sasa.ropac@gmail.com
 
 
-cv /  ENG / [Saša Ropač - cv.pdf](https://github.com/sasaropac/AArthus-conference-2023/files/10200957/Sasa.Ropac.-.cv.pdf)
+CV /  ENG / [Saša Ropač - cv.pdf](https://github.com/sasaropac/AArthus-conference-2023/files/10200957/Sasa.Ropac.-.cv.pdf)
  / SROPAC
 
 ![SmartSelect_20221210-203007_Gallery](https://user-images.githubusercontent.com/120111273/206875458-cbbafc11-e9de-45e7-95da-02228b3a4d8b.jpg)
