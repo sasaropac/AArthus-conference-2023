@@ -21,7 +21,7 @@ I will present seven of my projects, which were born from contemplation, visions
 
 
 
-Sasa Ropac
+M.Sc.Sasa Ropac, udika
 
 Presernova 17
 
