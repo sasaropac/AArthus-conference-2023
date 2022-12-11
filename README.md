@@ -44,7 +44,7 @@ Presernova ul. 17
 
 Slovenia
 
-tel.:00 386 40 213 223
+tel.: 00 386 40 213 223
 
 sasa.ropac@gmail.com
 
