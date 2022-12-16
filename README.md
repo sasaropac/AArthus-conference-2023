@@ -33,7 +33,7 @@ APPLICATION FORM AND SHORT REFLECTION FOR PHD CONFERENCE:
 CV /  ENG / [Saša Ropač - cv.pdf](https://github.com/sasaropac/AArthus-conference-2023/files/10200957/Sasa.Ropac.-.cv.pdf)
  / SROPAC
  
- 
+ Workshop in progres: https://fb.me/e/5oeUynqUq | with Venus lights & performance
  
 
 M.Sc. Sasa Ropac, udika
